@@ -6,7 +6,7 @@
 
 - 📫 How to reach me **joejohnkj@gmail.com**
 
-- 📄 Know about my experiences **[https://drive.google.com/file/d/1tua18jrkM-9hauFLSuhGuNx0z5EkvggG/view?usp=drive_link](https://drive.google.com/file/d/1tua18jrkM-9hauFLSuhGuNx0z5EkvggG/view?usp=drive_link)**
+- 📄 Know about my experiences **[https://drive.google.com/file/d/1jxrPU6NmKGkfaubV-ohzlkB1fD2dt8MI/view?usp=drive_link](https://drive.google.com/file/d/1jxrPU6NmKGkfaubV-ohzlkB1fD2dt8MI/view?usp=drive_link)**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
